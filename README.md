@@ -2,8 +2,8 @@
 Sanelisiwe Muthwa
 SanerhMuthwa · she/her
 an Introverted extrovert an Aspiring web developer
-Intern @CodSoft
-Durban, South Africa
+Student @Durban University of Technology
+📍🏠Durban, South Africa
 03:22 (UTC -12:00)
 in/sanelisiwe-muthwa-0a4a8025a
 sanerhmootoa
